@@ -1,3 +1,3 @@
 # anytools
-gatau buat naro tools aja
+idk just random tools
 feel free to use
